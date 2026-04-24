@@ -1,4 +1,4 @@
-
+Experience easter tap simulator like never before with automatic Scripts for easter tap simulator, the #1 Script. Includes auto-sell and auto-heal
 
 
 
